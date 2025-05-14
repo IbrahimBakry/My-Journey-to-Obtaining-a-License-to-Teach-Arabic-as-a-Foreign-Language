@@ -1,0 +1,2 @@
+# My-Journey-to-Obtaining-a-License-to-Teach-Arabic-as-a-Foreign-Language
+For 40 intense days, I dedicated myself to a mission—designing an accredited Arabic language program and obtaining an official teaching license from the Ministry of Education of the Samara Region (Russia). This was not just about paperwork; it was about creating a structured, effective, and engaging course for non-native speakers.
